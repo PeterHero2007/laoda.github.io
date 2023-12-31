@@ -1,1 +1,1 @@
-This is a page developed by laoda.
+嗨，如果你是八班人，那么你走对地方了。
